@@ -68,3 +68,8 @@ Some pitctures and content come from
 love and lemons website on pasta making from
 Jeanine Donofrio and Phoebe Moore
 https://www.loveandlemons.com/homemade-pasta-recipe/
+
+
+Spaghetti Recipie from 
+https://www.inspiredtaste.net/38940/spaghetti-with-meat-sauce-recipe/
+Joanne Gallagher
